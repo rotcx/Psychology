@@ -1,6 +1,7 @@
 # Psychology
 
 
+
 《少有人走的路》
 http://vdisk.weibo.com/s/e5Wm8
 
@@ -109,115 +110,115 @@ http://vdisk.weibo.com/s/zZOPp
 
 《变态心理学》
 http://vdisk.weibo.com/s/AitSC
-Hi，推荐文件给你 "
+
 
 《心理类型学》TXT下载（全本）作者：荣格.txt" 
-http://vdisk.weibo.com/s/AObiJHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AObiJ
 
 《管理中的心理学》TXT下载（全本）作者：陆明.txt" 
-http://vdisk.weibo.com/s/AUr7lHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AUr7l
 
 《社会心理学》TXT下载（全本）作者：[美]戴维·迈尔斯.txt" 
-http://vdisk.weibo.com/s/AUqYRHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AUqYR
 
 《拷问心理学》TXT下载（全本）作者：胡纪泽.txt" 
-http://vdisk.weibo.com/s/AUpg9Hi，推荐文件给你 "
+http://vdisk.weibo.com/s/AUpg9
 
 《心理操纵术》TXT下载（全本）作者：尤文·韦伯.txt" 
-http://vdisk.weibo.com/s/ATXwkHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXwk
 
 《心理学的诡异》TXT下载（全本）作者：不详(当当网年度畅销书).txt" 
-http://vdisk.weibo.com/s/ATXqMHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXqM
 
 《5分钟搞定对方：你可以看透任何人》TXT下载（全本）作者：[美]大卫·李柏曼.txt" 
-http://vdisk.weibo.com/s/z6jOmHi，推荐文件给你 "优化课堂教学方法丛书——心理咨询方法.txt" 
-http://vdisk.weibo.com/s/AUsFGHi，推荐文件给你 "
+http://vdisk.weibo.com/s/z6jOm优化课堂教学方法丛书——心理咨询方法.txt" 
+http://vdisk.weibo.com/s/AUsFG
 
 《Criminal Psychology犯罪心理学（英文版）》TXT下载（全本）作者：HANS GROSS, J. U. D..txt" 
-http://vdisk.weibo.com/s/y8x2KHi，推荐文件给你 "
+http://vdisk.weibo.com/s/y8x2K
 
 《24个比利》TXT下载（全本）作者：丹尼尔．凯斯（Dainel Deyes）（心理小说）.txt" 
-http://vdisk.weibo.com/s/xBo3JHi，推荐文件给你 "
+http://vdisk.weibo.com/s/xBo3J
 
 《人格裂变的姑娘》作者：[美] F·R·施赖勃.txt" 
-http://vdisk.weibo.com/s/wYLJTHi，推荐文件给你 "
+http://vdisk.weibo.com/s/wYLJT
 
 《万法简史》TXT下载（全本）作者：肯·威尔伯 Ken Wilber（心理励志） .txt" 
-http://vdisk.weibo.com/s/wYQz7Hi，推荐文件给你 "
+http://vdisk.weibo.com/s/wYQz7
 
 《犯罪心理画像----行为证据分析入门》TXT下载（全本）作者：布伦特·E·特维.txt" 
-http://vdisk.weibo.com/s/AUqQIHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AUqQI
 
 《心理测验》作者：江户川乱步.txt" 
 http://vdisk.weibo.com/s/Blc_x
-Hi，推荐文件给你 "
+
 
 《FBI教你读心术》TXT下载（全本）作者：【美】乔·纳瓦罗 马文·卡尔林斯 .txt" 
-http://vdisk.weibo.com/s/AbQL6Hi，推荐文件给你 "
+http://vdisk.weibo.com/s/AbQL6
 
 《FBI教你十分钟识别谎言》TXT下载（全本）作者：冠诚.txt" 
-http://vdisk.weibo.com/s/AbQJgHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AbQJg
 
 《FBI心理分析术》TXT下载（全本）作者：罗伯特·K·雷斯勒.txt" 
-http://vdisk.weibo.com/s/AbQGgHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AbQGg
 
 《FBI联邦调查局女特工一二部》TXT下载（全本）作者：安普耳·史密斯.txt" 
 http://vdisk.weibo.com/s/AbQPW
-Hi，推荐文件给你 "
+
 
 《交往心理与交往技巧》TXT下载（全本）作者：杜江先.txt" 
-http://vdisk.weibo.com/s/ATSdJHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATSdJ
 
 《交易心理分析》TXT下载（全本）作者：【美】马克·道格拉斯.txt" 
-http://vdisk.weibo.com/s/ATSgTHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATSgT
 
 《心理黑洞：曼哈顿心理诊所手记》TXT下载（全本）作者：张源侠.txt" 
-http://vdisk.weibo.com/s/AUp9qHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AUp9q
 
 《广告心理战》TXT下载（全本）作者：王玉成 韩天雷.txt" 
-http://vdisk.weibo.com/s/ATXjCHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXjC
 
 《影响他人的心理学》TXT下载（全本）作者：郑小兰.txt" 
-http://vdisk.weibo.com/s/ATXmXHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXmX
 
 《奥秘心理学》TXT下载（全本）作者：奥修.txt" 
-http://vdisk.weibo.com/s/ATW-pHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATW-p
 
 《九型人格》TXT下载（全本）作者：[美]海伦·帕尔默[译]徐扬 .txt" 
-http://vdisk.weibo.com/s/ATSafHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATSaf
 
 《九型人格 办公室心理学》TXT下载（全本）作者：迈克尔高德葆（美国） .txt" 
-http://vdisk.weibo.com/s/ATS8eHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATS8e
 
 《夫妻生活宝典：情感心理拉链》TXT下载（全本）作者：罗西.txt" 
 http://vdisk.weibo.com/s/ATU2u
 
-Hi，推荐文件给你 "
+
 
 《女心理师》TXT下载 （全本）作者：毕淑敏（上）.txt" 
-http://vdisk.weibo.com/s/ATX5zHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATX5z
 
 《女心理师》TXT下载 （全本）作者：毕淑敏（下）.txt" 
 http://vdisk.weibo.com/s/ATXbD
-Hi，推荐文件给你 "
+
 
 《第七个读者》TXT下载（全本）作者：雷米.txt" 
-http://vdisk.weibo.com/s/AUr0IHi，推荐文件给你 "
+http://vdisk.weibo.com/s/AUr0I
 
 《心理罪》TXT下载（全本）作者：雷米.txt" 
-http://vdisk.weibo.com/s/ATXC4Hi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXC4
 
 《心理罪1画像》TXT下载（全本）作者：雷米.txt" 
-http://vdisk.weibo.com/s/ATXISHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXIS
 
 《心理罪2教化场》TXT下载（全本）作者：雷米 .txt" 
-http://vdisk.weibo.com/s/ATXNiHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXNi
 
 《心理罪3暗河》TXT下载（全本）作者：雷米 .txt" 
-http://vdisk.weibo.com/s/ATXVzHi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATXVz
 
 《心理罪4城市之光》作者：雷米.txt" 
-http://vdisk.weibo.com/s/ATY26Hi，推荐文件给你 "
+http://vdisk.weibo.com/s/ATY26
 
 《心理罪5智齿》TXT下载（全本）作者：雷米.txt" 
 http://vdisk.weibo.com/s/ATY5C
